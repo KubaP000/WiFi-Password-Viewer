@@ -9,3 +9,6 @@ Click ENTER it will show you WiFi names & passwords
 
 Tyle
 That's it
+
+Odwiedź moją stronę internetową team-it.com.pl & pankox.com.pl
+Visit my site team-it.com.pl & pankox.com.pl
